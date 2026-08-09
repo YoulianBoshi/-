@@ -16,13 +16,6 @@ youlianboshi
 
 <img width="500" height="750" alt="11" src="https://github.com/user-attachments/assets/8828108d-3c6e-483c-b70b-c953fe8c3386" />
 
-
-[2026/4/8火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：1elwsxg](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口获取6天VPN试用](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
-
-[火种VPN客户端破解补丁](https://ylbs.lanzoul.com/ixC5d3g02upc)
-
-![](https://img.erpweb.eu.org/imgs/2026/02/06b694057c8f89c9.jpg)
-
 [2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/c/3305--/4787)
 
 <img width="850" height="625" alt="123" src="https://github.com/user-attachments/assets/5e35d8a2-1d1e-4a77-93e8-b6e0ba51c71d" />
